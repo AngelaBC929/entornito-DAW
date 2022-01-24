@@ -1,4 +1,3 @@
 # entornito-DAW
 Clase de entorno DAW
-jhegkdjgs<jksgvbfdgdvbfhukbigibkzsiui<sgblfoduigidhgub
-kjvhgklhglbhjblbn
+jhegkdjgs<jksgvbfdgdvbfhukbigibkzsiui<sgblfoduigid
